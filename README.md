@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NauamB
-- 👀 I’m interested in helped!
+- 👀 I’m interested in help!
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on every possibles!
 - 📫 How to reach me nauambelo1@gmail.com
